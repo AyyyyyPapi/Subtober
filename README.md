@@ -1,5 +1,6 @@
 # Subtober
 **Subtober Information for twitch.tv/ayyyyy_papi**
+
 It is **OFFICIALLY** October, and this marks the beginning of our very first Sub Event! Any Subs, Gift Subs, Primers, or min $1 of Bits will count towards all of the goals. ($5 of bits globally = 1 sub, tier 2 subs worth 2 subs, tier 3 worth 3 subs)
 
 ----------------------------------------------------------------------------
